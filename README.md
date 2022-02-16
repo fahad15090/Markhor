@@ -16,7 +16,7 @@
 
 # Custom bootanimation also available on demand
 
-# Markhor high quality anytype available 
+# Markhor logo high quality available for your project
  *You can buy by contact* 
 
 *fahadgujjar4994@gmail.com*
