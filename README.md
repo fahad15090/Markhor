@@ -16,7 +16,7 @@
 
 # Custom bootanimation also available on demand
 
-# Markhor logo high quality available for your project
+# Markhor logo high quality VECTOR available for your project
  *You can buy by contact* 
 
 *fahadgujjar4994@gmail.com*
